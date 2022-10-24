@@ -3,3 +3,6 @@
   
 > Nama: Killian L V  
 > NRP: 26535
+  
+> Nama: Lexi V  
+> NRP: 89793
