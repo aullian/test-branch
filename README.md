@@ -1,2 +1,2 @@
-> Nama: Aurelio K L V  
+> Nama: Aurelio  
 > NRP: 14159
