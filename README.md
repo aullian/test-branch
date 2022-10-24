@@ -6,6 +6,9 @@
   
 > Nama: Lexi V  
 > NRP: 89793  
-  
+ 
 > Nama: Aueio  
 > NRP: 23846
+
+> Nama: Oilerua  
+> NRP: 2244
